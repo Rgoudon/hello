@@ -1,5 +1,3 @@
 # hello
-entrainement
-blablabla jeux 
-blablabla bouffe 
-blablabla boobs
+Coucou
+tu veux voir ma bite ?
